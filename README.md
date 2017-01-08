@@ -1,4 +1,4 @@
-# Postavte Strakovku čelem k Vltavě!
+# Postavte Strakovku čelem k Městu!
 
 _—Ing. arch. Miroslav Pešek_
 
